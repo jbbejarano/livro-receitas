@@ -14,7 +14,7 @@
 
 ### Modo de Preparo ###
 
-1 - Em uma panela cozinhe todos os ingridientes
+1 - Em uma panela cozinhe todos os ingredientes
 
 2 - Prepare todos os componentes e misture bem
 
